@@ -35,4 +35,4 @@ For hosted plans, support, or commercial licensing, contact
 
 ---
 
-Built by [Summer Rise Studios](https://www.summerrise.studio).
+Built by [Summer Rise Studios](https://www.summerrise.studio) · [LinkedIn](https://www.linkedin.com/company/summerrise-studios) · [X](https://x.com/SummerRiseStudi) · [Instagram](https://www.instagram.com/summerrisestudios/)
